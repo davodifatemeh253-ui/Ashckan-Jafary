@@ -1,2 +1,0 @@
-# Ashckan-Jafary
-لا اعلم
